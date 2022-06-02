@@ -1,0 +1,1 @@
+Las respuestas a las preguntas teóricas están en el documento 6.
